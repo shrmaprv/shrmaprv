@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Apoorv
 - 👀 I’m interested in marketing but had this dream to build my own social media, back when I was in school – that's when I learned web development.
-- 📫 You can reach me at aprvshrm.com or shrmaprv@gmail.com
+- 📫 You can reach me at apoorvsharma.co or shrmaprv@gmail.com
